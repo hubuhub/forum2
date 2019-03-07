@@ -1,5 +1,5 @@
 ---
 layout: post 
-title: Купить купить microsoft office 365 с доставкой 
+title: microsoft office 365
 --- 
-Посоветуйте, решил купить купить microsoft office 365 , но нигде не могу найти вариант с доставкой.
+Посоветуйте, решил купить microsoft office 365. Что думаете?
